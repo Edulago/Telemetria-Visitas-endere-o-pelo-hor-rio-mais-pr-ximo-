@@ -1,0 +1,1 @@
+# Telemetria-Visitas-endere-o-pelo-hor-rio-mais-pr-ximo-
